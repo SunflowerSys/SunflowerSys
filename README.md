@@ -12,6 +12,7 @@ Karl-he/it's;;Amnesia
 
 George-he/they;;OTD
  
+B00m3rN4-He/they/frog/froggy/tad
 ★☆More alters are on the way just developing!! ☆★
 <!---
 SunflowerSys/SunflowerSys is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
