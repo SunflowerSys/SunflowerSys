@@ -6,7 +6,7 @@ Tomz-he/they/xe;;N/A
 
 Tubz0(co-host) -he/him/they/bee/buzz;;Dyslexic
 
-Dream(host) -he/xis;;ADHD
+CC! Dream(host) -he/xis;;ADHD
 
 Karl-he/it's;;Amnesia
 
@@ -18,6 +18,9 @@ Jschlatt(Irl)-He/they/ram/rammie
 
 Ted Nevison-He/him/they/milk
 
+CC!Badboyhalo- He/They
+
+Dsmp!Badboyhalo- They/itz/demon/moon
 ★☆More alters are on the way just developing!! ☆★
 <!---
 SunflowerSys/SunflowerSys is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
